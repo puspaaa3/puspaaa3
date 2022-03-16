@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @puspaaa3
 - 👀 I’m interested in programming (maybe:D)
 - 🌱 I’m currently learning on Universitas Bengkulu
-- 💞️ I’m looking to collaborate on NASA xD
+- 💞️ I’m looking to collaborate w/ NASA xD
 - 📫 How to reach me go follow my ig @puspaaa3 fast lmao
 
 <!---
